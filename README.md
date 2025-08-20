@@ -1,5 +1,6 @@
 > Still longing to muse on cosmos and skies,
-or pebbles in the sand—the tides of life.
+or pebbles in the sand—the tides of life.  
+> Would you still—with candid smile—embrace my absurd for a while?
 > 
 > Excerpted from *[Devotion](https://music.youtube.com/watch?v=sSQKl7rBTWQ&list=RDAMVMsSQKl7rBTWQ)*
 
